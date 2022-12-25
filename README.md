@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kalhoralireza
-- 👀 c
+- 👀 I’m interested in anything related to Cybersecurity, Hacking, Programming and ofcourse, Games and Series.
 - 🌱 I’m currently reading and learning The Web Application Hacker's Handbook 2nd Edition.
 - 📫 How to reach me , you can message me in Telegram on t.me/KalhorAlireza
 
